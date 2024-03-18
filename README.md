@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @maingail518
+ - 👋 Hi, everyone, I’m @maingail518
 - 👀 I’m interested in universe exploring
 - 🌱 I’m currently learning about SpaceX, very amazing
 - 💞️ I’m looking to collaborate on ...
